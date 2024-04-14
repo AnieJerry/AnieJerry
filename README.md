@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate with organizational leaders to determine their information requirements by gathering data from primary and secondary sources
 - 📫 How to reach me [here](www.linkedin.com/in/annie-aigbomian-830239b3).
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Exploring subjects that enhance my expertise in the skill I aim to master and then eagerly sharing every insight I've gained with anyone within earshot, usually Jerry, Lucky him.
+- ⚡ Fun fact: Exploring subjects that enhance my expertise in the skill I aim to master and then eagerly sharing every insight I've gained with anyone within earshot, usually Jerry, Lucky him😄.
 
 <!---
 AnieJerry/AnieJerry is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
